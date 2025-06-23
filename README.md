@@ -1,1 +1,1 @@
-# AmanBhadwaj.io
+# AmanBhardwaj.io
